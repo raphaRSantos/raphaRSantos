@@ -1,6 +1,6 @@
 ## 👋 Olá, eu sou o Raphael!
 
-![Dev Meme](https://media.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif)
+![image](https://github.com/user-attachments/assets/150fadb0-82fa-4bfd-bfe2-63d7ccc16e3d)
 
 
 ### 🚀 Sobre Mim
